@@ -22,3 +22,9 @@ i luv all my friends very very much! pls neva die guys youre awesome
 - im very much a listener rather than a talker, + if you want to talk to be about yr interests im very happy to listen :-)
 
  i can take small things to heart sometimes so please b mindful of this! im pretty understanding in most cases, but i do appreciate kindness ^_^
+
+![image](https://github.com/user-attachments/assets/081d3d66-5ce2-467f-ab6b-8ccdb28a773a) ![image](https://github.com/user-attachments/assets/32ad627b-469c-4d3f-9669-9f6f54ef1044) ![image](https://github.com/user-attachments/assets/ddbcf6e6-b7ef-48fb-a26f-ef602dfdc790) ![image](https://github.com/user-attachments/assets/99b02196-e35b-461a-9d56-ebfcba86d66a) ![image](https://github.com/user-attachments/assets/d1182ac1-bc88-4400-83e5-a3fad265cba6)
+
+
+
+
