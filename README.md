@@ -1,6 +1,6 @@
 ## read me 0u0!!
 
- - pls int if you like loki, homestuck, good omens or hannibal!!
+ - pls int if you like TLOZ, house, loki, homestuck, good omens, blue period or hannibal!!
  - 
      i go by any pronouns but he, she or it is preferred.
 
