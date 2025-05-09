@@ -1,7 +1,7 @@
 ## read me 0u0!!
 
  - pls int if you like homestuck, hannibal, cabaret, loki, good omens, or TLOZ. :-)
- - proship/darkship dni
+ - 
      i go by any pronouns but he, she or it is preferred.
 
    ‿‿‿‿ 
