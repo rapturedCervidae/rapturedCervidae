@@ -1,7 +1,7 @@
 ## read me 0u0!!
 
- - pls int if you like TLOZ, house, loki, homestuck, good omens, blue period or hannibal!!
- - 
+ - pls int if you like homestuck, hannibal, cabaret, loki, good omens, or TLOZ. :-)
+ - proship/darkship dni
      i go by any pronouns but he, she or it is preferred.
 
    ‿‿‿‿ 
@@ -15,7 +15,6 @@ i luv all my friends very very much! pls neva die guys youre awesome
 ![image](https://github.com/user-attachments/assets/7279136b-e588-4927-a0db-3a5668932a0c)
 
 ## BYI!!
-
 - take everythin i say/do as platonic!
 - PLEASE if i ever do anthing to bother you, tell me!! i hate making people feel bad and id love to know how 2 improve!
 - i appreciate cuddles a TON! it brings me a lot of comfort, especially when im stressed. they r very much enjoyed + encouraged!
