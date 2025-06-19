@@ -12,7 +12,8 @@ i luv all my friends very very much! pls neva die guys youre awesome
 
 └── ⋆⋅☆⋅⋆ ──┘
 
-![image](https://github.com/user-attachments/assets/7279136b-e588-4927-a0db-3a5668932a0c)
+![image](![image](https://github.com/user-attachments/assets/fbe53d46-9fca-44ff-a29a-fe5fb813a200)
+)
 
 ## BYI!!
 - take everythin i say/do as platonic!
