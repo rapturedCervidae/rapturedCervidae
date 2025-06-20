@@ -4,6 +4,8 @@
  - 
      i go by any pronouns but he, she or it is preferred.
 
+   proship / darkship etc will be blocked immediately dont even bother with interacting
+
    ‿‿‿‿ 
 
    ![image](https://github.com/user-attachments/assets/da500027-c5f0-492e-be02-623bff6d5f50)
