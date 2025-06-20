@@ -1,10 +1,8 @@
 ## read me 0u0!!
 
  - pls int if you like homestuck, hannibal, cabaret, loki, good omens, or TLOZ. :-)
- - 
-     i go by any pronouns but he, she or it is preferred.
-
-   - proship / darkship etc will be blocked immediately, dont even bother with interacting.
+ - i go by any pronouns, but he or she are preferred!
+ - proship / darkship & the similar will be blocked immediately.
 
    ‿‿‿‿ 
 
