@@ -3,7 +3,7 @@
  - pls int if you like homestuck, star trek, hannibal, cabaret, loki, good omens, or TLOZ. :-)
  - i go by any pronouns, but he or she are preferred!
    
-![image](https://github.com/user-attachments/assets/cc600408-b0fa-4470-99ec-f404671cd872)![image](https://github.com/user-attachments/assets/b9648d2e-1c60-44e2-85d0-543440f8a7bf)![image](https://github.com/user-attachments/assets/c278d14a-ed67-4237-b9e1-02e178514377)
+![image](https://github.com/user-attachments/assets/cc600408-b0fa-4470-99ec-f404671cd872)![image](https://github.com/user-attachments/assets/b9648d2e-1c60-44e2-85d0-543440f8a7bf)![image](https://github.com/user-attachments/assets/c278d14a-ed67-4237-b9e1-02e178514377) < kins!!
 
 
 ![image](https://github.com/user-attachments/assets/8900521b-1624-48af-accd-e826be361d2d)
