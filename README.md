@@ -19,9 +19,11 @@
 
  i can take small things to heart sometimes so please b mindful of this! im pretty understanding in most cases, but i do appreciate kindness ^_^
 
-![image](https://github.com/user-attachments/assets/081d3d66-5ce2-467f-ab6b-8ccdb28a773a) ![image](https://github.com/user-attachments/assets/32ad627b-469c-4d3f-9669-9f6f54ef1044) ![image](https://github.com/user-attachments/assets/ddbcf6e6-b7ef-48fb-a26f-ef602dfdc790) ![image](https://github.com/user-attachments/assets/99b02196-e35b-461a-9d56-ebfcba86d66a) ![image](https://github.com/user-attachments/assets/d1182ac1-bc88-4400-83e5-a3fad265cba6) ![image](https://github.com/user-attachments/assets/007ad419-2621-4bfe-bd10-0ebae449ac15) ![image](https://github.com/user-attachments/assets/a74a6d34-56d0-4ba6-ad11-a99794be3f97) ![image](https://github.com/user-attachments/assets/86f9bf44-cd72-44b2-aabf-79d16207db05) 
+![image](https://github.com/user-attachments/assets/5f84ed13-690e-4d71-8976-e45cdd038b52)
 
-![image](https://github.com/user-attachments/assets/1f68a066-e6ee-4c89-b3d2-53751854bf0a)
+
+![image](https://github.com/user-attachments/assets/00238cc8-5592-4d09-8c7b-dc67f8e86a8c)
+
 
    ‿‿‿‿ 
 
