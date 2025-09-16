@@ -3,7 +3,7 @@
  - interact if you like DISCO ELYSIUM!!! homestuck, STAR TREK!!!!!, hannibal, cabaret, loki, good omens, or brokeback mtn! :-)
  - i go by any pronouns, but he or she are preferred!
    
-![image](https://github.com/user-attachments/assets/9b29b81e-ef4c-4c39-8100-4b08175374dd)
+![image](https://github.com/user-attachments/assets/6eb16587-5275-43fc-81f7-65bb986a0387)
 
 
 ## BYI!!
@@ -16,7 +16,8 @@
 
  i can take small things to heart sometimes so please b mindful of this! im pretty understanding in most cases, but i do appreciate kindness ^_^
 
-![image](https://github.com/user-attachments/assets/5f84ed13-690e-4d71-8976-e45cdd038b52)
+![image](https://github.com/user-attachments/assets/9b29b81e-ef4c-4c39-8100-4b08175374dd)
+
 
    ‿‿‿‿ 
 
