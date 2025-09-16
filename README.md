@@ -17,17 +17,8 @@
 
  i can take small things to heart sometimes so please b mindful of this! im pretty understanding in most cases, but i do appreciate kindness ^_^
 
-![image](https://github.com/user-attachments/assets/9b29b81e-ef4c-4c39-8100-4b08175374dd)
-
+![image](https://github.com/user-attachments/assets/f3a66e30-ab2b-4707-bfec-fdf94152d483)
 
    ‿‿‿‿ 
 
 i luv all my friends very very much! pls neva die guys youre awesome
-
-└── ⋆⋅☆⋅⋆ ──┘
-
-
-
-
-
-
