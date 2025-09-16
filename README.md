@@ -3,7 +3,8 @@
  - interact if you like DISCO ELYSIUM!!! homestuck, STAR TREK!!!!!, hannibal, cabaret, loki, good omens, or brokeback mtn! :-)
  - i go by any pronouns, but he or she are preferred!
    
-![image](https://github.com/user-attachments/assets/35f973df-9d96-43ac-9b5c-917d9a357247)
+![image](https://github.com/user-attachments/assets/9b29b81e-ef4c-4c39-8100-4b08175374dd)
+
 
 ## BYI!!
 - take everythin i say/do as platonic!
