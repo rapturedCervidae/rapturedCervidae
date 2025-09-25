@@ -1,5 +1,6 @@
 ## read me 0u0!!
 
+ - CUDDLES CUDDLES CUDDLES! c+h pleaseee! very much encouraged! :-))) 
  - interact if you like DISCO ELYSIUM!!! HOMESTUCK!!! star trek, HANNIBAL!!, *cabaret*, loki, house MD, good omens🧡🧡, or brokeback mtn! :-)
  - i go by any pronouns, but he or she are preferred!
    
