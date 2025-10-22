@@ -1,7 +1,7 @@
 ## read me 0u0!!
 
  - CUDDLES CUDDLES CUDDLES! c+h pleaseee! very much encouraged! :-))) 
- - interact if you like DEAD POETS SOCIETY!!!!! DISCO ELYSIUM!!! HOMESTUCK!!! star trek, HANNIBAL!!, *cabaret*, loki, house MD, good omens🧡🧡, or brokeback mtn! :-)
+ - interact if you like DEAD POETS SOCIETY!!!!! DISCO ELYSIUM!!! HOMESTUCK!!! star trek, HANNIBAL!!, *cabaret*, loki, house MD, scream 1996!!! good omens🧡🧡, or brokeback mtn! :-)
  - i go by any pronouns, but he or she are preferred!
    
 ![image](https://github.com/user-attachments/assets/65aa1db1-ba43-4336-aedc-0a6f04160923)
