@@ -1,6 +1,6 @@
 <img width="640" height="51" alt="image" src="https://github.com/user-attachments/assets/ae1e8e45-8e54-49bd-806d-0b649885d274" />
 
-![image](https://github.com/user-attachments/assets/68eefb3f-855b-4131-aacc-3a91a293b94d)
+[image](https://github.com/user-attachments/assets/e30aad7d-8408-4394-972e-3a6bcab6be98)
 
 ## read me 0u0!!
 
