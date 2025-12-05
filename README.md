@@ -1,5 +1,7 @@
 <img width="640" height="51" alt="image" src="https://github.com/user-attachments/assets/ae1e8e45-8e54-49bd-806d-0b649885d274" />
 
+![image](https://github.com/user-attachments/assets/69b838f1-e66a-47ea-97f3-b26652e373d0)
+
 ## read me 0u0!!
 
  - cuddles ahhh!!! cuddles are SO appreciated. dont be afraid to, i am always happy to cud :-)
