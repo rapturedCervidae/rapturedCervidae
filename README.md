@@ -8,16 +8,16 @@
 <img width="640" height="51" alt="image" src="https://github.com/user-attachments/assets/46b38ba3-1965-41a5-8b17-02847e0e2b3b" />
 
 ## BYI!!
-- take everythin i say/do as platonic!
-- PLEASE if i ever do anthing to bother you, tell me!! i hate making people feel bad and id love to know how 2 improve!
-- i appreciate cuddles a TON! it brings me a lot of comfort, especially when im stressed. they r very much enjoyed + encouraged!
-- im very much a listener rather than a talker, + if you want to talk to me about yr interests im very happy to listen ;)
-- if i am covering / behind someone and it doesn't appear to be cuds, it's likely that i have them hidden! please tell me if this happens so i know to move :pp
-- i ALWAYS say goodbye before i leave, so if i don't, that means i am having wifi issues or fell asleep!
+- i ALWAYS say goodbye before i leave! if i do not, i am having wifi issues / fell asleep. :-)
+- if i bug you with anything i do, plsplspls tell me! i hate makin people feel bad and id always love to know how i can improve.
+- if im covering / behind someone and it doesnt look like cuds, it's likely that i have them hidden! if this happens pls tell me so i know to move :-D.
+- heaavy proship / darkship discomfort . 
 
- i can take small things to heart sometimes so please b mindful of this! im pretty understanding in most cases, but i do appreciate kindness ^_^
+ i can take small things to heart sometimes so please b mindful of this! im pretty understanding in most cases, but i do appreciate kindness ^_^))
 
-![image](https://github.com/user-attachments/assets/f3a66e30-ab2b-4707-bfec-fdf94152d483)
+![image](https://github.com/user-attachments/assets/68eefb3f-855b-4131-aacc-3a91a293b94d)
+
+![image](https://github.com/user-attachments/assets/5e877508-530c-42b6-8883-7f9a342d339d)
 
    ‿‿‿‿ 
 
