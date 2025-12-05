@@ -1,6 +1,8 @@
-## read me 0u0!!
-
 <img width="640" height="51" alt="image" src="https://github.com/user-attachments/assets/ae1e8e45-8e54-49bd-806d-0b649885d274" />
+
+![image](https://github.com/user-attachments/assets/68eefb3f-855b-4131-aacc-3a91a293b94d)
+
+## read me 0u0!!
 
  - cuddles ahhh!!! cuddles are SO appreciated. dont be afraid to, i am always happy to cud :-)
  - interact if you like IWTV!!!! (current hyperfixation) DISCO ELYSIUM!!! HOMESTUCK!!! star trek, HANNIBAL!!, *cabaret*, loki, house MD, scream 1996!!! good omens🧡🧡, danganronpa 1, dead poets society, or brokeback mtn! :-)
@@ -16,8 +18,6 @@
  i can take small things to heart sometimes so please b mindful of this! im pretty understanding in most cases, but i do appreciate kindness ^_^))
 
 ![image](https://github.com/user-attachments/assets/68eefb3f-855b-4131-aacc-3a91a293b94d)
-
-![image](https://github.com/user-attachments/assets/5e877508-530c-42b6-8883-7f9a342d339d)
 
    ‿‿‿‿ 
 
