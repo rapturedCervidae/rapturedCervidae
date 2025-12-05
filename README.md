@@ -5,7 +5,7 @@
 ## read me 0u0!!
 
  - cuddles ahhh!!! cuddles are SO appreciated. dont be afraid to, i am always happy to cud :-)
- - interact if you like IWTV!!!! (current hyperfixation) DISCO ELYSIUM!!! HOMESTUCK!!! star trek, HANNIBAL!!, *cabaret*, loki, house MD, scream 1996!!! good omens🧡🧡, danganronpa 1, dead poets society, or brokeback mtn! :-)
+ - interact if you like IWTV!!!! (current hyperfixation) DISCO ELYSIUM!!! HOMESTUCK!!! star trek, HANNIBAL!!, *cabaret*, loki, house MD, scream 1996!!! good omens🤎🤎, danganronpa 1, dead poets society, or brokeback mtn! :-)
    
 <img width="640" height="51" alt="image" src="https://github.com/user-attachments/assets/46b38ba3-1965-41a5-8b17-02847e0e2b3b" />
 
