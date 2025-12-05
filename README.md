@@ -1,5 +1,9 @@
 ## read me 0u0!!
 
+https://64.media.tumblr.com/f70610c3636bb08602a6970e3a33b299/4cd9e84b6cb2e6ab-29/s640x960/6153ce075908e8edcb472698477cf65e0cd23fa2.pnj<img width="640" height="51" alt="image" src="https://github.com/user-attachments/assets/ae1e8e45-8e54-49bd-806d-0b649885d274" />
+
+
+
  - CUDDLES CUDDLES CUDDLES! c+h pleaseee! very much encouraged! :-))) 
  - interact if you like DEAD POETS SOCIETY!!!!! DISCO ELYSIUM!!! HOMESTUCK!!! star trek, HANNIBAL!!, *cabaret*, loki, house MD, scream 1996!!! good omens🧡🧡, danganronpa 1, IWTV (INT INT INT PLSPSL) !!! or brokeback mtn! :-)
  - i go by any pronouns, but he or she are preferred!
